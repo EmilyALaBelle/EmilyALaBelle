@@ -1,4 +1,4 @@
-Hi 👋 My name is Emily LaBelle
+Hi My name is Emily LaBelle
 ==============================
 
 Software Engineer
