@@ -5,7 +5,7 @@ Software Engineer
 -----------------
 
 * 🌍  I'm based in Florida
-* ✉️  You can contact me at [emilylabelle8@gmail.com](mailto:emilylabelle8@gmail.com)
+* ✉️  You can contact me at [Linkdin](https://www.linkedin.com/in/emilylabelledev/) - emilylabelle8@gmail.com
 
 ### Skills
 
